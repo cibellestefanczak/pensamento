@@ -1,0 +1,2 @@
+# pensamento
+criado em aula
